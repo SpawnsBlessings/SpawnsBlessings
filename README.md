@@ -4,4 +4,6 @@
 
 <p align="center"> Itrapped ∙ Tela ∙ Twotime  </p>
 
+<p align="center"> I like nicknames! </p>
+
 <p align="center"> ____________________________________________________________ </p>
