@@ -8,4 +8,4 @@
 
 <p align="center"> ____________________________________________________________ </p>
 
-<p align="center"> I hide people randomly, its never personal <3 </p>
+<p align="center"> I block freely, please don’t take it personally </p>
