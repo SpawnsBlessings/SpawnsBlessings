@@ -2,6 +2,6 @@
 
 ![image](https://file.garden/Z5XfcGXMBSWGuItV/IMG_2277.jpeg)
 
-<p align="center"> Itrapped, Tela, Twotime or whatever! </p>
+<p align="center"> Itrapped Tela Twotime or whatever! </p>
 
 <p align="center"> ____________________________________________________________ </p>
