@@ -8,3 +8,5 @@
 
 <p align="center"> ____________________________________________________________ </p>
 
+
+<p align=”center”> I hid whoever so if I've hid you know its not personal! </p>
