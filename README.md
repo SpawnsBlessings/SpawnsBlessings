@@ -10,4 +10,4 @@
 
 <p align="center"> I block freely, please don’t take it personally </p>
 
-<p align=”center”>![](https://komarev.com/ghpvc/?username=SpawnsBlessings&label=gamblers&color=615F85&style=flat) </p>
+![](https://komarev.com/ghpvc/?username=SpawnsBlessings&label=gamblers&color=615F85&style=flat) 
