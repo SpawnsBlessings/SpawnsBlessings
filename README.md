@@ -4,7 +4,7 @@
 
 <p align="center"> Itrapped ∙ Tela ∙ Twotime ∙ Azure ∙ Nicknames </p>
 
-<p align="center"> __________________________ </p>
+<p align="center"> ______________ </p>
 
 <p align="center"> C+H FREELY | CUDDLE COMF
 
