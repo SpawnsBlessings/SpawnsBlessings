@@ -6,6 +6,9 @@
 
 <p align="center"> C+H FREELY | CUDDLE COMF
 
+
+<p align="center"> ♱ </p>
+
 <p align="center"> ____________________________________________________________ </p>
 
 <p align="center"> I block freely, please don’t take it personally </p>
