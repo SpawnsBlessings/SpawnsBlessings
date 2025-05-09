@@ -4,7 +4,10 @@
 
 <p align="center"> Itrapped ∙ Tela ∙ Twotime ∙ Azure ∙ Nicknames </p>
 
-<p align="center"> C+H FREELY | CUDDLE COMF | I'm 15+
+<p align="center"> C+H FREELY | CUDDLE COMF | 15+
+
+<p align="center"> Dni under 13 - over 21
+
 
 <p align="center"> ____________________________________________________________ </p>
 
