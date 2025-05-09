@@ -6,7 +6,7 @@
 
 <p align="center"> C+H FREELY | CUDDLE COMF 
 
-<p align="center"> I’m 15+! Dni under 13 or over 21
+<p align="center"> I’m over 15! please dni if under 13 or over 21
 
 
 <p align="center"> ____________________________________________________________ </p>
