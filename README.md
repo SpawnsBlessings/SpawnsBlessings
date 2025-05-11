@@ -11,7 +11,7 @@
 
 <p align="center"> ____________________________________________________________ </p>
 
-<p align="center"> Over 15! please dni if under 13 or over 25 
+<p align="center"> Over 15! please dni if you're over 25
 
 <p align="center"> I block freely, please don’t take it personally </p>
 
