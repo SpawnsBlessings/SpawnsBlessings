@@ -1,6 +1,6 @@
 <p align="center"> <ins> " Wishing you a better life, without me by your side." </ins> </p>
 
-![image](https://file.garden/Z5XfcGXMBSWGuItV/IMG_2649.jpeg)
+![image](https://file.garden/Z5XfcGXMBSWGuItV/IMG_2650.jpeg)
 
 <p align="center"> Itrapped ∙ Azure ∙ Twotime ∙ Tela ∙ Nicknames </p>
 
