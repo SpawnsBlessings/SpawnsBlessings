@@ -2,7 +2,7 @@
 
 ![image](https://file.garden/Z5XfcGXMBSWGuItV/IMG_2277.jpeg)
 
-<p align="center"> Itrapped ∙ Tela ∙ Twotime ∙ Azure ∙ Nicknames </p>
+<p align="center"> Itrapped ∙ Azure ∙ Twotime ∙ Tela ∙ Nicknames </p>
 
 <p align="center"> C+H FREELY | CUDDLE COMF 
 
